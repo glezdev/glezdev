@@ -1,4 +1,4 @@
-### Hi, i'm José Luis  👋
+### Hi, i'm José Luis 📚 💻 🚀
 
 
 
